@@ -1,1 +1,0 @@
-# Dicion-rio-de-Dados-Sistema-MLG-Com-rcio
